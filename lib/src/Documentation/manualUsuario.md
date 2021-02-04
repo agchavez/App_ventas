@@ -3,13 +3,9 @@
 ## Instalacion 
 Para poder hacer instalaciones necesarias
 
-lorem
-adad
-ada
-sda
-as
-sda
+kjadjkadsajkjaljajdklj kasj 
+sdad
+adas
+dada
+das
 da
-dad
-ad
-sada
